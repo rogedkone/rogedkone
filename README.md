@@ -1,4 +1,4 @@
-### Hi there 👋, I'm German Yangalin
+### Hi there 👋, I'm Egor Diakonov
 <br />
 <br />
 
